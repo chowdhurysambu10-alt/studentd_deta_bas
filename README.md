@@ -1,0 +1,1 @@
+# studentd_deta_bas
